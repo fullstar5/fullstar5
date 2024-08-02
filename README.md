@@ -1,4 +1,5 @@
-## Hi there 👋 This is Bob, I placed her in here to welcome you to my profile
+## Hi there 👋👋 
+## This is Bob 👇 I placed her here to welcome you to my profile
 
 
                      _______________________
